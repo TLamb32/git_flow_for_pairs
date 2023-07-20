@@ -1,1 +1,1 @@
-"How now brown cow" --- unique new york
+"How now brown cow. Unique New York"
